@@ -1,5 +1,5 @@
 # Waifu gw di game Arknights
-![IMG_20210827_154401](https://cdn.donmai.us/original/85/97/__saga_arknights_drawn_by_nanaponi__859796bb50cabc2408233ed6db7c8ca5.png)
+![IMG_20210827_154401](https://cdn.donmai.us/original/5d/0a/__ceobe_and_saga_arknights_drawn_by_wan_jue__5d0a539cd17a7d234bdf7a243fe36fcd.png)
 ![IMG_20210827_154401](https://cdn.donmai.us/original/29/58/__texas_arknights_drawn_by_0_znanimo__2958015d53e620fc21b64ed83865ec31.jpg)
 ![IMG_20210827_154401](https://cdn.donmai.us/original/48/d3/__schwarz_and_schwarz_arknights_drawn_by_blazpu__48d30f307b74873ba275de478959c716.jpg)
 ![IMG_20210827_154401](exe)
