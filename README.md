@@ -1,2 +1,11 @@
-# waifu
-ga ada apa² di sini, cuman pamer waifu doang saya wkwk
+# Waifu gw di game Arknights
+(https://cdn.donmai.us/original/85/97/__saga_arknights_drawn_by_nanaponi__859796bb50cabc2408233ed6db7c8ca5.png)
+(https://cdn.donmai.us/original/29/58/__texas_arknights_drawn_by_0_znanimo__2958015d53e620fc21b64ed83865ec31.jpg)
+(https://cdn.donmai.us/original/48/d3/__schwarz_and_schwarz_arknights_drawn_by_blazpu__48d30f307b74873ba275de478959c716.jpg)
+(exe)
+(exe)
+(exe)
+(exe)
+(exe)
+(exe)
+(exe)
