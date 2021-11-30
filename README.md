@@ -4,10 +4,10 @@
 ![IMG_20210827_154401](https://cdn.donmai.us/original/48/d3/__schwarz_and_schwarz_arknights_drawn_by_blazpu__48d30f307b74873ba275de478959c716.jpg)
 ![IMG_20210827_154401](https://cdn.donmai.us/original/e7/ea/__mudrock_arknights_drawn_by_ru_zhai__e7ea231c3d30572bfa79a0f6beb3c487.jpg)
 ![](https://cdn.donmai.us/original/6f/b6/__blaze_arknights_drawn_by_chaji_h__6fb631c591dfa69bcc893f769f35bc60.png)
-![IMG_20210827_154401](exe)
-![IMG_20210827_154401](exe)
-![IMG_20210827_154401](exe)
-![IMG_20210827_154401](exe)
+![IMG_20210827_154401](https://cdn.donmai.us/crop/eb/99/eb991876b8297513c67a7e7549298159.jpg)
+![IMG_20210827_154401](https://cdn.donmai.us/crop/9a/14/9a1458e551bd07c333f0278bb940822f.jpg)
+![IMG_20210827_154401](https://cdn.donmai.us/original/c4/c6/__magallan_and_magallan_arknights_drawn_by_aogisa__c4c6a29678063c390d24e248ba7cab36.jpg)
+![IMG_20210827_154401](https://cdn.donmai.us/original/9e/68/__lappland_arknights_drawn_by_gnai__9e68a596c70acec4d6d07bad07921745.png)
 ![IMG_20210827_154401](exe)
 
 
